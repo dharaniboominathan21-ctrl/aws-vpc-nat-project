@@ -173,6 +173,4 @@ Dharani Boominathan
 AWS Learner | Cloud Enthusiast
 
 
-Customize it for AWS Educate / internship submission
 
-Just tell me 😄
